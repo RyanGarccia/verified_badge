@@ -1,18 +1,23 @@
 Quando eu digo que deixei de te amar
 É porque eu te amo
+
 Quando eu digo que não quero mais você
 É porque eu te quero
+
 Eu tenho medo de te dar meu coração
 E confessar que eu estou em tuas mãos
+
 Mas não posso imaginar
 O que vai ser de mim
 Se eu te perder um dia
 
 Eu me afasto e me defendo de você
 Mas depois me entrego
+
 Faço tipo, falo coisas que eu não sou
 Mas depois eu nego
 Mas a verdade
+
 É que eu sou louco por você
 E tenho medo de pensar em te perder
 Eu preciso aceitar que não dá mais
