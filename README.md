@@ -1,19 +1,44 @@
-Tell me pretty lies
-Look me in the face
-Tell me that you love me
-Even if it's fake
-'Cause I don't fucking care, at all
+Quando eu digo que deixei de te amar
+É porque eu te amo
+Quando eu digo que não quero mais você
+É porque eu te quero
+Eu tenho medo de te dar meu coração
+E confessar que eu estou em tuas mãos
+Mas não posso imaginar
+O que vai ser de mim
+Se eu te perder um dia
 
-You've been out all night
-I don't know where you've been
-You're slurring all your words
-Not making any sense
-But I don't fucking care, at all
+Eu me afasto e me defendo de você
+Mas depois me entrego
+Faço tipo, falo coisas que eu não sou
+Mas depois eu nego
+Mas a verdade
+É que eu sou louco por você
+E tenho medo de pensar em te perder
+Eu preciso aceitar que não dá mais
+Pra separar as nossas vidas
 
-'Cause I have hella feelings for you
-I act like I don't fucking care
-Like they ain't even there
 
-'Cause I have hella feelings for you
-I act like I don't fucking care
-'Cause I'm so fucking scared
+Assinar e remover anúncios
+E nessa loucura de dizer que não te quero
+Vou negando as aparências
+Disfarçando as evidências
+Mas pra que viver fingindo
+Se eu não posso enganar meu coração?
+Eu sei que te amo!
+
+Chega de mentiras
+De negar o meu desejo
+Eu te quero mais que tudo
+Eu preciso do seu beijo
+Eu entrego a minha vida
+Pra você fazer o que quiser de mim
+Só quero ouvir você dizer que sim!
+
+Diz que é verdade, que tem saudade
+Que ainda você pensa muito em mim
+Diz que é verdade, que tem saudade
+Que ainda você quer viver pra mim
+
+
+Assinar e remover anúncios
