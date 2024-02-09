@@ -24,7 +24,6 @@ Eu preciso aceitar que não dá mais
 Pra separar as nossas vidas
 
 
-Assinar e remover anúncios
 E nessa loucura de dizer que não te quero
 Vou negando as aparências
 Disfarçando as evidências
